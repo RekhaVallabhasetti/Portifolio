@@ -1,1 +1,2 @@
-# Portifolio
+      Welcome to my portfolio! I'm happy to have you here and appreciate you showing interest in what I do. I have been developing my portfolio and improving my talents to show off my versatility.With every project, I aim to continuously learn, develop, and challenge my abilities to produce better output.
+      I appreciate you looking over my portfolio and spending some time getting to know me and my work. I hope you enjoy looking through my portfolio as much as I am happy to share my efforts with you. If you have any queries or would like to work together on a project, don't be afraid to get in touch.
